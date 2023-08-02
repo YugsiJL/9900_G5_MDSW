@@ -1,7 +1,7 @@
 # Primera Reunión:
 https://youtu.be/1TUNk08Pyq8
 # Segunda Reunión: 
-https://uespe-my.sharepoint.com/:v:/g/personal/jlyugsi_espe_edu_ec/ERBhlcBxEB5ImzSovnrW20oBprieqG5qVyKxz0DyroUkgw?e=j2dBGR
+https://youtu.be/nW4IUwNu4ao
 # Tercera Reunión:
 https://uespe-my.sharepoint.com/:v:/g/personal/jlyugsi_espe_edu_ec/EZvW60FY_B9BsKSVeFq0Qt4BO1gyldeNd6RZSvnW7MV48Q?e=ESRNQK
 # Revision de errores 1:
