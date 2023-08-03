@@ -6,7 +6,5 @@ https://youtu.be/nW4IUwNu4ao
 https://youtu.be/RStvmmHO_o4
 # Cuarta Reunión Virtual:
 https://youtu.be/9NP_uLmIo3g
-# Revision de errores 1:
-https://uespe-my.sharepoint.com/:v:/g/personal/jlyugsi_espe_edu_ec/EZFXIcLJu3lPiH_9vRAgPDcBEflm0cD26h_vX8SJglPtQQ?l=cvJKFc
-# Revisión de correción de errores:
-https://uespe-my.sharepoint.com/:v:/g/personal/jlyugsi_espe_edu_ec/EZFXIcLJu3lPiH_9vRAgPDcBEflm0cD26h_vX8SJglPtQQ?e=cvJHTc
+# Revisión y correción de errores:
+https://youtu.be/5rbOb583MR8
